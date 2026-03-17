@@ -7,7 +7,7 @@
 - 8 oz Breakfast Blend
 - 1/4 cup of 2% milk
 - 1 Tbsp powdered sugar
-- 1/4 tsp vanilla extract
+- 1/4 tsp vanilla extract x
 - Ice
 
 ## How to Make Vanilla Sweet Cream Cold Foam
